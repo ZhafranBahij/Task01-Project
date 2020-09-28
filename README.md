@@ -8,7 +8,7 @@
 	Pada bagian DAM-nya, hanya terdapat 5 pintu air saja. Namun, hal itu tidaklah tepat karena menurut Chen Xiang, seorang ahli hidrologis mengungkapkan bahwa butuh 12 pintu air untuk membangun DAM tersebut, tetapi pemerintah menghiraukannya karena dianggap berlebihan dan terlalu mengeluarkan banyak duit bagi pemerintah. Pada sumber wikipedia berbahasa Inggris dijelaskan bahwa desain bendungan terlalu berfokus pada penampungan air, tetapi mengabaikan pencegahan banjir.<br><br>
 
 <b>SARAN</b><br>
-	Alangkah baiknya sebelum pemerintah memutuskan untuk membangu DAM, perlu dilakukan penelitian-penelitian dari berbagai aspek, entah dari tanahnya, pemukimannya, pendapat warga sekitar, cuaca, dan aspek-aspek lainnya. Hal ini diperlukan agar tidak ada hal buruk yang akan terjadi nantinya. Di samping itu, pemerintah juga perlu mendengarkan apa yang dikatakan oleh para ahli, yang mana hal itu pasti akan membantu pemerintah dalam membangun DAM sehingga di masa depan nanti hal buruk yang diperkirakan tidak akan terjadi. <br><br>
+	Alangkah baiknya sebelum pemerintah memutuskan untuk membangun DAM, perlu dilakukan penelitian-penelitian dari berbagai aspek, entah dari tanahnya, pemukimannya, pendapat warga sekitar, cuaca, dan aspek-aspek lainnya. Hal ini diperlukan agar tidak ada hal buruk yang akan terjadi nantinya. Di samping itu, pemerintah juga perlu mendengarkan apa yang dikatakan oleh para ahli, yang mana hal itu pasti akan membantu pemerintah dalam membangun DAM sehingga di masa depan nanti hal buruk yang diperkirakan tidak akan terjadi. <br><br>
 
 Referensi : 
 -	https://www.youtube.com/watch?v=i_z-_V5mM_Q	
