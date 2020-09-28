@@ -1,5 +1,7 @@
 # Task01-Report
 
+<h1 align="center">Insiden di Bendungan Banqiao </h1>
+
 <b>PENYEBAB KEJADIAN</b>
 	Saat itu beberapa pekerja sedang memperbaiki puncak bendungan yang rusak diakibarkan oleh Typhoon Nina. Typhoon nona ini menuju sungai Huai pada 5 Agustus 1975. Ini mengakibatkan hujan lebat selama 3 hari berturut-turut. Entah mengapa curah hujan saat itu terjadi lebih tinggi dari hujan yang terjadi selama setahun itu. Bahkan burung-burung pun dapat mati jika terkena derasnya hujan. Karena terjadi banjir di bagian bawah atau bagian lembah dari bendungan, maka para pekerja diperintahkan agar memperkecil jumlah air yang mengalir di bendungan. Tapi setelah hari pertama, komunikasi terputus dan para pekerja disana harus bisa menentukan apa yang harus mereka lakukan. Dengan paniknya, para pekerja menembus banjir yang sudah sepinggang untuk menumpuk kantung pasir agar banjir tidak semakin meninggi namun sayangnya bocor. Lewat tengah malam, air naik setinggi 1 kaki dari puncak bendungan, lalu surut. Bahkan badai pun menghilang dan langit malam menjadi cerah. Namum beberapa waktu kemudian, air setinggi 20 kaki dan selebar 7 mil menghantam pedesaan yang berada dibawahnya.
 
